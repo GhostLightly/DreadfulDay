@@ -7,7 +7,9 @@ my pronouns are any ! i sometimes change or use prefer prns on my server profile
 
 I am a ***minor and taken*** so please avoid flirting with me ,
 
-im usually ***offtab*** so i suggest you whisper me , but i sometimes reply late because im either playing or ***afk*** , i also don't mind you sit next to me or cuddle , i sometimes i put C*h on few of my characters !
+im usually ***offtab*** so i suggest you whisper me , but i sometimes reply late because im either *playing or afk* , i also don't mind you sit next to me or cuddle ,
+
+i sometimes i put C*h on few of my characters , it also indicates that im offtab or afk 
 
 I am a tdu / The days union fan ! and no , i do ***not*** support the admins actions nor anything they have done .
 
