@@ -13,6 +13,8 @@ sometimes i put C*h on few of my characters , also always uses mapicc or radiant
 
 I am a tdu / The days union fan ! and no , i do ***not*** support the admins actions nor anything they have done .
 
+i also make ALOT of rentries for fun ! especially when im matching w/ my wife ! // ex . https://rentry.co/P3ST_ , https://rentry.co/griefer_ , https://rentry.co/Stargazingprince !
+
 also im awkard when it comes to talking and making friends so im sorry ^_^
 i think thats all uhmm bye
 
