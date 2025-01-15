@@ -7,11 +7,9 @@ my pronouns are any ! i sometimes change or use prefer prns on my server profile
 
 im usually offtab so i suggest you whisper me , but i sometimes reply late because im either playing or afk , i also don't mind you sit next to me or cuddle ,
 
-sometimes i put C*h on few of my characters , also always uses mapicc or radiant _ day if im afk or offtab
-
 I am a tdu / The days union fan ! and no , i do ***not*** support the admins actions nor anything they have done .
 
-i also make ALOT of rentries for fun ! especially when im matching w/ my wife ! // ex . 
+i also make ALOT of rentries for fun ! // ex . 
 
 .co/P3ST_
 
